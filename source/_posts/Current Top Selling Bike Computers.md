@@ -64,6 +64,6 @@ The price upon this unit is ridiculously low for a radio bike computer. No wonde
 - what lengths did you ride?
 - how much time were you riding?
 
-Additionally it is waterproof, and ships with the mandatory batteries for the transmitter and the machine. But it costs less than $10 … hence, it is not totally astonishing that it gets blended reviews. It seems that some persons cannot manage to get it set up properly and/or get it to work. Alternatively, those who do have the ability to arrange it properly and obtain it to function, rave about any of it being good value for money.
+Additionally it is waterproof, and ships with the mandatory batteries for the transmitter and the machine. But it costs less than $10, hence, it is not totally astonishing that it gets blended reviews. It seems that some persons cannot manage to get it set up properly and/or get it to work. Alternatively, those who do have the ability to arrange it properly and obtain it to function, rave about any of it being good value for money.
 
 Bottom level line: if you wish a wireless bike computer, and you want sole the standard functions, and you are prepared to risk ten bucks, after that that is worth giving a go. Of study course, if it doesn't do the job you can get your money back, but that it a headache. Idea: don't do it when you have chunky front side shocks, as these help to make it harder to create the Zonore bike pc.
